@@ -66,7 +66,7 @@
 
 📍 Lviv, Ukraine  
 📧 **vasylyk29@gmail.com**  
-🔗 [GitHub](https://github.com/VasylykSerhiy) • [LinkedIn](https://www.linkedin.com/feed/) • [Telegram](https://t.me/Vasylyk_Sergiy)
+🔗 [GitHub](https://github.com/VasylykSerhiy) • [LinkedIn](https://www.linkedin.com/feed/) • [Telegram](https://t.me/Vasylyk_Serhiy)
 
 ---
 
